@@ -50,3 +50,7 @@ https://start.me/p/ELdOmB/biocolores
 6. Cienciometría
 
 **Colaboradores**
+Layla
+Israel
+Mine
+Moy
