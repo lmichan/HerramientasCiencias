@@ -38,6 +38,8 @@ https://biogarabatos.blogspot.com/2023/11/cajas-de-herramientas-para.html
 
 https://biogarabatos.blogspot.com/2023/09/clasificacion-de-las-herramientas-para.html
 
+https://biogarabatos.blogspot.com/2023/04/recursos-digitales-para-ensenanzas-de.html
+
 https://hypothes.is/users/lmichan?q=tag%3AHerramienta%F0%9F%9B%A0
 
 
