@@ -30,5 +30,6 @@ https://start.me/p/ELdOmB/biocolores
 
 
 **Herramientas:**
-Zotero
-Wikidata
+1.Zotero
+
+2.Wikidata
