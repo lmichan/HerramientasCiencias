@@ -40,3 +40,11 @@ https://start.me/p/ELdOmB/biocolores
 1.Zotero
 
 2.Wikidata
+
+3. Hypothes.is
+
+4. PubMed
+
+5. RSS
+
+6. Cienciometría
