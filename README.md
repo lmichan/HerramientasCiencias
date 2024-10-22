@@ -48,3 +48,5 @@ https://start.me/p/ELdOmB/biocolores
 5. RSS
 
 6. Cienciometría
+
+**Colaboradores**
