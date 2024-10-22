@@ -27,3 +27,8 @@ https://start.me/p/q6x7Nn/infovestigacion
 https://start.me/p/z4K9Ez/biohistoria
 
 https://start.me/p/ELdOmB/biocolores
+
+
+**Herramientas:**
+Zotero
+Wikidata
