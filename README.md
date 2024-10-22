@@ -34,6 +34,10 @@ https://start.me/p/z4K9Ez/biohistoria
 
 https://start.me/p/ELdOmB/biocolores
 
+https://biogarabatos.blogspot.com/2023/11/cajas-de-herramientas-para.html
+
+https://biogarabatos.blogspot.com/2023/09/clasificacion-de-las-herramientas-para.html
+
 
 **Herramientas:**
 
