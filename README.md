@@ -21,6 +21,9 @@ Presentación de [Herramientas Digitales para Ciencias]()
 
 
 **Recursos:** recursos Web
+
 https://start.me/p/q6x7Nn/infovestigacion
+
 https://start.me/p/z4K9Ez/biohistoria
+
 https://start.me/p/ELdOmB/biocolores
