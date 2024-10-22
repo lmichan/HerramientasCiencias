@@ -13,11 +13,17 @@ Presentación de [Herramientas Digitales para Ciencias]()
 **El enfoque:** Reuniremos las herramientas digitales más reelevantes que sean útiles para realizar investigación y enseñanza de las ciencias a nivel universitario
 
 **Las preguntas:**
+
 ¿Cuáles herramientas existen?
+
 ¿Cuáles hacen falta?
+
 ¿Para qué sirven?
+
 ¿Cómo se clasifican?
+
 ¿Cómo se utilizan?
+
 
 
 **Recursos:** recursos Web
